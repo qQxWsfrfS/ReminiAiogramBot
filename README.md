@@ -9,4 +9,5 @@ For correct installation:
 
 
 
-![Forgif2](https://github.com/cutcutcute/ReminiAiogramBot/assets/125074247/3d3e951a-4af3-4273-8bce-2367a4c08dec)
+
+![Forgif](https://github.com/cutcutcute/ReminiAiogramBot/assets/125074247/52b161aa-75e3-4467-bed2-34a2e062577b)
